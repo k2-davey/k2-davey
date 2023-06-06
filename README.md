@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kimberley Davey
+- 👀 I’m interested in Software Developers interested in a new exciting job role
+- 🌱 I’m currently learning...(truthfully) the basics
+- 💞️ I’m looking to collaborate.
+- 📫 How to reach me kimberley.davey@skutopia.com
